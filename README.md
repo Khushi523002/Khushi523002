@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Khushi523002
-- 👀 I’m interested in Programming, Solving Puzzles, a bit of gaming and much more:)
+- 👀 I’m interested in Programming, Solving Puzzles, Exploring new ideas and and much more:)
 - 🌱 I’m currently doing my Engineering in Computers.
 - 💞️ I’m looking to forward to learn more.
 - 📫 How to reach me
